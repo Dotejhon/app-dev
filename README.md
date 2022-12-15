@@ -1,8 +1,9 @@
 # LIST OF MY FAVORITE MOVIES
 [MOVIE TIERLIST](https://www.FMovies.com)
-> ~~Boring.~~   > ~~Scary.~~ > ~~Predictable Plot.~~
-> FAMILY FRIENDLY MOVIES
-  
+> ~~Boring.~~  ~~Scary.~~ ~~Predictable Plot.~~
+`Family Friendly`
+`Unexpected Plot`
+`God Tier Story`
 
   
 1. She's Dating The Gangster
