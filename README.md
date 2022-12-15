@@ -1,8 +1,9 @@
-# LIST OF MY FAVORITE MOVIES **bold text**
+# LIST OF MY FAVORITE MOVIES
 [MOVIE TIERLIST](https://www.FMovies.com)
-> blockquote
-`List`
-
+	> ~~Boring.~~
+  > ~~Scary.~~
+  > ~~Predictable Plot.~~
+  > 
 1. She's Dating The Gangster
 ![Use Data to see Photo](secret-movie-files-episode-2-820.jpeg)
 3. Walang Hanggan
@@ -10,9 +11,9 @@
 5. Praybeyt Benjamin 
 ![Use Data to see Photo](Praybeytbenjofficial.jpg)
 
-~~Boring.~~
-~~Scary.~~
-~~Predictable Plot.~~
+
+
+
 
 
 
