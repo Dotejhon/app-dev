@@ -1,8 +1,8 @@
 # LIST OF MY FAVORITE MOVIES
 [MOVIE TIERLIST](https://www.FMovies.com)
 1. She's Dating The Gangster
-![Poster](secret-movie-files-episode-2-820.jpeg)
+![Use Data to see Photo](secret-movie-files-episode-2-820.jpeg)
 3. Walang Hanggan
-![alt text](image.jpg)
+![Use Data to see Photo](Walang_Hanggan-titlecard.jpg)
 5. Praybeyt Benjamin 
-![alt text](image.jpg)
+![Use Data to see Photo](Praybeytbenjofficial.jpg)
