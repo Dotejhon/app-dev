@@ -7,9 +7,10 @@
 
   
 1. She's Dating The Gangster
+> Short Synopsis : Athena Dizon plays a trick on campus heartthrob and bad boy, gangster, Kenji de los Reyes. Setting up an arrangement to pretend as lovers-to make his ex jealous-they found themselves falling to each other yet falling apart.
 > Will make you cry 😿:
  ![1405571321-SDTG_inside](https://user-images.githubusercontent.com/104140138/208019314-1651377d-08e5-4f9b-a828-f2aaa41999fd.jpg)
- > Short Synopsis : Athena Dizon plays a trick on campus heartthrob and bad boy, gangster, Kenji de los Reyes. Setting up an arrangement to pretend as lovers-to make his ex jealous-they found themselves falling to each other yet falling apart.
+ 
 2. Walang Hanggan
 > Will make your heart ache 💔:
 ![1351139208-Walang-Hanggan_inside](https://user-images.githubusercontent.com/104140138/208019385-49ddd238-14ae-4054-9f8c-161a86286bec.jpg)
